@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌌 I am nothing but I am everything.<br>👨‍💻 Computer Science Student<br>| 🚀 No Limits on My Ambition<br>🔍 Unsolved Problems Finder<br> | 🧘‍♂️ Spiritual Practitioner
+🌌 I am nothing but I am everything.<br>👨‍💻 Computer Science Student<br> 🚀 No Limits on My Ambition<br>🔍 Unsolved Problems Finder<br> 🧘‍♂️ Spiritual Practitioner
 
 
 ## 🌐 Socials:
